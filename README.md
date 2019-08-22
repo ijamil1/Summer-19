@@ -1,2 +1,2 @@
 # Summer-19
-Liberals Lab at Temple University
+Liberles Lab at Temple University
